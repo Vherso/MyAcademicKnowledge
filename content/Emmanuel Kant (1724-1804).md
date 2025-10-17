@@ -1,2 +1,0 @@
-# About Human dignity (about animals)
-Given one of Kant's most important and distinctive ideas, that value is defined by the choices of rational beings, his position that humanity is an ideal to pursue above all else *implies that humanity must have an incomparably high value*.
